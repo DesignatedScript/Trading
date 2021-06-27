@@ -1,5 +1,4 @@
 ## Trading Resources
-[editor on GitHub](https://github.com/DesignatedScript/Trading/edit/main/README.md)
 
 # Most Useful Trade Pro Resources
 [Trading Strategy Rankings - Google Sheets](https://docs.google.com/spreadsheets/d/1LQ7lwnvcB5eacK4PxLXnV1mMEIzSxHzD8IZpP2N1oA8/edit#gid=0)\
