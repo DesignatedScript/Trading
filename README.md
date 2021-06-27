@@ -22,20 +22,21 @@
 [My Trading Background + How I Create Strategies And Ideas For Videos](https://www.youtube.com/watch?v=0g2vgPDvclI)\
 [How To Use Hidden Divergence - A Powerful Strategy](https://www.youtube.com/watch?v=iyzEZiY6vJM)
 
-### And More
+### And More & Market Structure Basics
 [How I Trade - Pro Trader Bar Replay Feature + Breakdown + Thoughts](https://www.youtube.com/watch?v=oaQ4r-M3nlE)\
-[Small Account Challenge Trade Entry + Why You Need To Follow An Investment Plan](https://www.youtube.com/watch?v=iTmhv2TZbcQ)
-
+[Small Account Challenge Trade Entry + Why You Need To Follow An Investment Plan](https://www.youtube.com/watch?v=iTmhv2TZbcQ)\
 [Forex Market Structure Explained](https://www.youtube.com/watch?v=OvHOcO9CQCM)
 
 ## Strategies Worth Learning / Understanding
 ### MACD Strat
-[Highly Profitable High Win Rate Trading Strategy You Have Never Seen Before](https://www.youtube.com/watch?v=oQQ-VCJYc6M)
+[Highly Profitable High Win Rate Trading Strategy You Have Never Seen Before](https://www.youtube.com/watch?v=oQQ-VCJYc6M)\
 [HIGHEST PROFIT Trading Strategy On YouTube Proven 100 Trades](https://www.youtube.com/watch?v=9o6BG-dCgco)
 
 ### Stochastic Strat
-[Highly Profitable Trading Strategy Proven 100 Trades - RSI + Stochastic + 200 EMA](https://www.youtube.com/watch?v=hAYul735zEc)
+[Highly Profitable Trading Strategy Proven 100 Trades - RSI + Stochastic + 200 EMA](https://www.youtube.com/watch?v=hAYul735zEc)\
 [Extremely Profitable 1 Minute Chart Trading Strategy Proven 100 Trades - EMA + RSI + Stochastic](https://www.youtube.com/watch?v=v9N4kj4-V2s)
+
+
 
 
 
