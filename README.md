@@ -1,5 +1,8 @@
 # Trading Resources
 
+*Matt Chris & Dylan, Enjoy ;)*
+*Love Tom x*
+
 ## Most Useful Trade Pro Resources
 [Trading Strategy Rankings - Google Sheets](https://docs.google.com/spreadsheets/d/1LQ7lwnvcB5eacK4PxLXnV1mMEIzSxHzD8IZpP2N1oA8/edit#gid=0)\
 [Vital Trading Education](https://www.youtube.com/playlist?list=PL7xw-9WduM7jbIp-_bau3dplOZaPcTCOq)\
