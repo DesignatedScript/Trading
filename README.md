@@ -2,9 +2,9 @@
 [editor on GitHub](https://github.com/DesignatedScript/Trading/edit/main/README.md)
 
 # Most Useful Trade Pro Resources
-[Trading Strategy Rankings - Google Sheets](https://docs.google.com/spreadsheets/d/1LQ7lwnvcB5eacK4PxLXnV1mMEIzSxHzD8IZpP2N1oA8/edit#gid=0)
-[Vital Trading Education](https://www.youtube.com/playlist?list=PL7xw-9WduM7jbIp-_bau3dplOZaPcTCOq)
-[How I Catch All The Best Trade Entries - Fast And Easy](https://www.youtube.com/watch?v=9EwpnQGpyII)
+[Trading Strategy Rankings - Google Sheets](https://docs.google.com/spreadsheets/d/1LQ7lwnvcB5eacK4PxLXnV1mMEIzSxHzD8IZpP2N1oA8/edit#gid=0)\
+[Vital Trading Education](https://www.youtube.com/playlist?list=PL7xw-9WduM7jbIp-_bau3dplOZaPcTCOq)\
+[How I Catch All The Best Trade Entries - Fast And Easy](https://www.youtube.com/watch?v=9EwpnQGpyII)\
 [How To Properly Combine Multiple Trading Indicators For Next Level Results](https://www.youtube.com/watch?v=NGWe0Wg_0jo)
 [How To Make More Money Trading With Better Indicator Settings](https://www.youtube.com/watch?v=mPxsfoLNnAA)
 [Make A Living Trading With 5 Simple Strategy Optimization Steps](https://www.youtube.com/watch?v=6WA1sLWWOSs&list=PL7xw-9WduM7iZitlZljxdrChh_G22980U&index=28)
