@@ -13,7 +13,7 @@
 [Patreon Personal Trade Recap Video](https://www.youtube.com/watch?v=-vxeBLja1oM)    *PATREON EXCLUSIVE*\
 [how to stop entering right before a reversal patreon video](https://www.youtube.com/watch?v=aVyomPn-2aA)    *PATREON EXCLUSIVE*\
 [Trendline Trading Strategy Secrets Revealed-REVISED Nov-2011](https://forexyar.com/wp-content/uploads/2020/04/22030-tendencia.pdf)  *PATREON EXCLUSIVE*
-### Test
+### And More
 [3 Simple Trend Trading Hacks To Become Consistently Profitable](https://www.youtube.com/watch?v=0_6LXFveKkQ&list=PL7xw-9WduM7iZitlZljxdrChh_G22980U&index=44)\
 [How To Day Trade Successfully And Become Consistently Profitable](https://www.youtube.com/watch?v=KYHFg4ZpqEc)\
 [The Trading Secret You Need To Fully Understand To Be Consistently Profitable](https://www.youtube.com/watch?v=A-QGWmEd9JU)\
@@ -22,13 +22,20 @@
 [My Trading Background + How I Create Strategies And Ideas For Videos](https://www.youtube.com/watch?v=0g2vgPDvclI)\
 [How To Use Hidden Divergence - A Powerful Strategy](https://www.youtube.com/watch?v=iyzEZiY6vJM)
 
-## T
+### And More
 [How I Trade - Pro Trader Bar Replay Feature + Breakdown + Thoughts](https://www.youtube.com/watch?v=oaQ4r-M3nlE)\
 [Small Account Challenge Trade Entry + Why You Need To Follow An Investment Plan](https://www.youtube.com/watch?v=iTmhv2TZbcQ)
 
 [Forex Market Structure Explained](https://www.youtube.com/watch?v=OvHOcO9CQCM)
 
-## Good Strategies
+## Strategies Worth Learning / Understanding
+### MACD Strat
+[Highly Profitable High Win Rate Trading Strategy You Have Never Seen Before](https://www.youtube.com/watch?v=oQQ-VCJYc6M)
+[HIGHEST PROFIT Trading Strategy On YouTube Proven 100 Trades](https://www.youtube.com/watch?v=9o6BG-dCgco)
+
+### Stochastic Strat
+[Highly Profitable Trading Strategy Proven 100 Trades - RSI + Stochastic + 200 EMA](https://www.youtube.com/watch?v=hAYul735zEc)
+[Extremely Profitable 1 Minute Chart Trading Strategy Proven 100 Trades - EMA + RSI + Stochastic](https://www.youtube.com/watch?v=v9N4kj4-V2s)
 
 
 
