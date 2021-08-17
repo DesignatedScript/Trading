@@ -1,6 +1,6 @@
 # Trading Resources
 
-*Matt Chris & Dylan, Enjoy ;)*
+*Matt Chris, Dylan & Ethan, Enjoy ;)*
 *Love Tom x*
 
 
